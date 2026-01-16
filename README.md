@@ -1,4 +1,4 @@
-# FreeAskInternet
+# FreeAskInternet.
 
 ## 🎉🎉🎉 Yeah we have a logo now! 🎉🎉🎉
 
